@@ -1,0 +1,2 @@
+# direquotidianshop.com
+direquotidianshop.com
